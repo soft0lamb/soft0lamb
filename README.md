@@ -5,6 +5,7 @@
 
 - **Lamb** / Sunny / Aslan
 - they/he
+- 23
 - autistic
 - please don't flirt with/sexualize me or my kins to me !! thank u <3
 - boops/kisses/c+h on PT are all ok :)) 
