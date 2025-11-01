@@ -7,7 +7,7 @@
 - he/they
 - 25
 - autistic
-- please don't flirt with/sexualize me or my kins to me !! thank u <3
+- please don't flirt with/sexualize me or my kins !! thank u <3
 - boops/kisses/c+h on PT are all ok :)) 
 
 
