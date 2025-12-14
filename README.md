@@ -18,9 +18,10 @@
 - ∘₊✧────────────✧₊∘ 
 
 happy holidays !! sign my [tree !](https://colormytree.me/2025/01KBX0840SW9G6ND8C95Q2H2F5)
+> art by [crezvcluu !!](https://crezvcluucomms.carrd.co) ychs open !!
+
 ![by @crezvcluu](https://i.ibb.co/NnGXfBTq/image.png)
 
-> art by [crezvcluu !!](https://crezvcluucomms.carrd.co) ychs open !!
 
  ![](https://enchantments.carrd.co/assets/images/gallery14/ea8df549.gif?v=f7e29c86)
 
