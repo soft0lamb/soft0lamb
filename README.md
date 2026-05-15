@@ -6,7 +6,7 @@
 - ∘₊✧────────────✧₊∘ 
 - lamb/aslan
 - 25
-- he/they
+- he/him
 - autistic
 - ∘₊✧────────────✧₊∘ 
 
